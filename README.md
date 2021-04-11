@@ -1,2 +1,2 @@
 # mapping
-[![Watch the video](https://i.imgur.com/vKb2F1B.png)](https://youtu.be/Q_bVwvMoHFs)
+[![Watch the video](https://img.youtube.com/vi/Q_bVwvMoHFs/maxresdefault.jpg)](https://youtu.be/Q_bVwvMoHFs)
